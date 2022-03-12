@@ -1,3 +1,3 @@
-haydi bu dosyayý biraz deðiþtirelim.
-bakalým nasýl kaydedeceðiz deðiþikliklerimizi.
+haydi bu dosyayi biraz degistirelim.
+
 					Adnan AKSU
